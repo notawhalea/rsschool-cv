@@ -1,1 +1,1 @@
-# rsschool-cv
+https://notawhalea.github.io/rsschool-cv/
